@@ -25,6 +25,4 @@
 - [ ] Update the website
 - [ ] Contact the media
 ----------------
-That is so funny! :sad:
-I need to highlight these ==very important words==
 
